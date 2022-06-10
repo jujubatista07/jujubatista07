@@ -1,0 +1,5 @@
+-# PERFIL
+- 👀 estou aprendendo a fazer um jogo 
+- 🌱 meu email para contato é @juliana.batista.santos@escola.pr.gov.br
+- 💞️ sou aluna do colegio estadual bendicto joão cordeiro 
+- 
